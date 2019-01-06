@@ -23,4 +23,5 @@ Paneer is a fresh cheese common in South Asia, especially in India.
 ## Serving ideas
 
 - Add to a curry
+![photo](paneer-curry.jpg)
 - Seal in a hot pan with a bit of oil and then paint with either bbq sauce or pesto
