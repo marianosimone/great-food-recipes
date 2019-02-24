@@ -12,6 +12,6 @@
 
 - Cut the mushrooms, the onion and the bell pepper in small pieces/dices
 - Add the lemon juice
-- Sason with cumin, salt and pepper
+- Season with cumin, salt and pepper
 - Let the lemon juice cook the ingredients for at least a night
 - Enjoy!
